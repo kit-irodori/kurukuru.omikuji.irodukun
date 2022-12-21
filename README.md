@@ -1,0 +1,1 @@
+# kurukuru.omikuji.irodukun
